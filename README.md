@@ -1,3 +1,3 @@
 # marko
 
-ti gay
+ovo je kul
